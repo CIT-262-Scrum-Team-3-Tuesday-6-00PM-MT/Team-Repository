@@ -2,4 +2,4 @@
 
 Cigi - I like to hike.
 
-Michael - I like to play video games.
+Michael - I like to play video games a lot.
